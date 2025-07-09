@@ -19,4 +19,4 @@
 
 总之，获取日本AV免费资源并非难事，关键在于选择正规信息渠道、具备基本防范意识，以及持续关注影片更新与女优动态。如果你希望探索更多优质AV内容与安全资源站点，不妨收藏本页，我们将持续更新2025年最新资源指南，为你打造高效、安全的观影入口。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/rr4052/685225 ）</span>
